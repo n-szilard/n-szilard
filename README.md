@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @n-szilard
+- 👋 Hi, I’m Nagyapáti Szilárd
 - 🌱 I’m currently learning mindent is
 - 📫 How to reach me nagyapatiszilard@turr.hu
 
